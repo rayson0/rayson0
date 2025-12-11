@@ -12,4 +12,4 @@
   Telegram: @rayson0_0
 - ⚡ Интересный факт: я фанат футбольного клуба "Реал Мадрид", а мой любимый игрок - Килиан Мбаппе
 
-<img width="3668" height="1876" alt="image" src="https://github.com/user-attachments/assets/c3b46070-d973-494b-b1c7-0deb49b3e71a" />
+<img width="3668" height="1876" alt="image" src="https://github.com/user-attachments/assets/1971f152-2482-43ab-b24c-0585989f43d1" />
